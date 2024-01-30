@@ -1,0 +1,1 @@
+# dipjan-detail
